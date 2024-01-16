@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Minh.
+- 👀 I’m interested in sport and music like normal people.
+- 🌱 I’m currently learning C, Java and Korean.
+- 💞️ I’m looking to collaborate with no one. 
+- 📫 How to reach me (null, i only reach you).
+- 😄 Pronouns: har/har/har/har/har/har🐻.
+- ⚡ Fun fact: some fact are not fun, so do life.
